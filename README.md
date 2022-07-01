@@ -1,2 +1,0 @@
-# stanickstranger
-VIRTUAL CHARACTER
